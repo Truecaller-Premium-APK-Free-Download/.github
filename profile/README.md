@@ -1,5 +1,3 @@
-# Truecaller Premium Mod APK  
-
 ## What is Truecaller Premium Mod APK?  
 Truecaller Premium Mod APK is a communication utility designed to improve how you manage calls and messages. This app helps identify unknown callers, block spam, and even record calls. Its premium features, unlocked in this modded version, provide an ad-free experience and advanced call filtering for smooth communication.  
 
